@@ -3,4 +3,4 @@ A personal website that highlights my achievements and accomplishments over the 
 
 I am always learning and growing
 
-I also like playing different sports including basketball
+I also like playing different sports including basketball and soccer
